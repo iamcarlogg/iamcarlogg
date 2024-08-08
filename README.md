@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **carlo.guerra0102@gmail.com**
 
-- 📄 Know about my experiences [Im actually a student from Universidad Centroamericana "Jose Simeon Cañas"](Im actually a student from Universidad Centroamericana "Jose Simeon Cañas")
+- 📄  Im actually a student from Universidad Centroamericana "Jose Simeon Cañas"
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
